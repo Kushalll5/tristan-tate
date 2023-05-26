@@ -1,2 +1,1 @@
 # tristan tate
-rockz
