@@ -1,1 +1,1 @@
-# andrew tate
+# tristan tate
